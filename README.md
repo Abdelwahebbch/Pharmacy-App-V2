@@ -1,1 +1,0 @@
-# Pharmacy-App-V2
